@@ -12,7 +12,7 @@
 
 [存取我最喜歡的網站：Bilibili](https://www.bilibili.com)
 
-![真是高高在上呢](image.png)
+![真是高高在上呢](e456c927-d2f9-42b3-8245-c10ebea2e1a0.jpg)
 
 > 心存迷惘便不要射擊
 
